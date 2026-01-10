@@ -1,3 +1,1 @@
 # Myfirst
-
-pohol nahui
